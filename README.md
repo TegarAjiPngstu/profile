@@ -1,5 +1,5 @@
 ## 👋 Hello!
-Im Tegar Aji Pangestu , I have working experience at RUS Animation Studio as a UI/UX Designer for 6 months.
+Im Tegar Aji Pangestu ,I  have working experience at RUS Animation Studio as a UI/UX Designer for 6 months..
 
 
 <br />
